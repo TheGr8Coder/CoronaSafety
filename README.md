@@ -1,1 +1,1 @@
-# https://thegr8coder.github.com/CoronaSafety
+# https://thegr8coder.github.io/CoronaSafety
